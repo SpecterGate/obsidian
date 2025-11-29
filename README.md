@@ -13,11 +13,10 @@ Contact the support team (which is obsidian@spectergate.io) with the support id 
 PYTHON i love you
 html your ok
 mb i had to make this readme fast cuz the whole Hentk.s society on the darkweb was spamming my dms about it
-
+all you guys get is `index.html` im not making the code open source its a **paid** program.
 
 EDUATIONAL PURPOSES ONLY
 NOT RESPONSIBLE FOR ANY MISUSE
-
 
 
 
